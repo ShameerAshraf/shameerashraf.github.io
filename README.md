@@ -1,1 +1,1 @@
-# [csenor.me](www.csenor.me)
+# [csenor.me](http://csenor.me)
